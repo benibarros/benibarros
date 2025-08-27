@@ -9,4 +9,4 @@ Já participei de alguns painéis e locais falando sobre _diversidade e inclusã
 
 Agora fora do mundo do trabalho e estudos, gosto de andar de bike, jogar videogame, ler livros e conhecer novas pessoas e lugares 🩵
 
-**Bora se conectar no [LinkedIn](https://www.linkedin.com/in/ben%C3%ADcio-barros?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)?**
+**Bora conectar no [LinkedIn](https://www.linkedin.com/in/ben%C3%ADcio-barros?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)?**
